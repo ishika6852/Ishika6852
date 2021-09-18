@@ -4,7 +4,7 @@
 #### - 🌱 I’m currently learning Git/GitHub, Competetive Programming and Java Programming Language
 #### - 👯 I’m looking to collaborate on Nothing At The Moment
 #### - 📫 How to reach me: Email me at- ishikabansal48@gmail.com 
-#### - ⚡ Fun fact:      -> Can cook edible food!!       -> Addicted To Coffee<3       ->  Part Of BTS Army
+#### - ⚡ Fun fact:      -> Can cook edible food!!       -> Addicted To Coffee☕       ->  Part Of BTS Army💜
 <img align="center" alt="BT21 Characters" width="400" height="500" src="https://i.pinimg.com/736x/d0/b2/01/d0b20127e499c295711dd5ccfefe20ad.jpg">
 <br />
 
